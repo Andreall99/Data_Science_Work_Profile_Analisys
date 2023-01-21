@@ -1,1 +1,0 @@
-# Data_Science_Work_Profile_Analisys
